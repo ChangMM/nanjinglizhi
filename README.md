@@ -32,10 +32,6 @@
 - 9.你好，郑州
 - 10.我爱南京
 - 11.在每一条伤心的应天大街上
-
-## Onedrive 资源链接
-链接：https://1drv.ms/f/s!Ak5XTBnhGoz1gbFXgj62eTeDB2Mg0w
-
 ### MP3:
 - 1.[IO2014]
 - 2.108 个关键词 2012 Live
@@ -49,6 +45,9 @@
 ### 其他：
 - 1.限量未发售非官方
 - 2.洋自剪与09我爱南京
+
+## Onedrive 资源链接
+链接：https://1drv.ms/f/s!Ak5XTBnhGoz1gbFXgj62eTeDB2Mg0w
 
 ## 334的一些纪录片地址
 - https://m.weibo.cn/status/4242848318702096
