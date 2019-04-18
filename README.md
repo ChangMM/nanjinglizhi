@@ -64,6 +64,27 @@
 
 ## Onedrive 资源链接
 链接：https://1drv.ms/f/s!Ak5XTBnhGoz1gbFXgj62eTeDB2Mg0w
+- 这个世界会好吗
+- 8
+- 108个关键词
+- 1701独立发行
+- F独立发行
+- HSA MAN A FUTURE
+- i O 2014Live
+- Imagine 2012 Live
+- 二零零九年十月十六日事件
+- 你好郑州
+- 动静2015 Live
+- 勾三搭四 2
+- 在每一条伤心的应天大街上
+- 工体东路没有人 2009 Live
+- 我爱南京(独立发行)
+- 李志北京不插电现场2016 Live
+- 梵高先生
+- 爵士乐与不插电新编12首
+- 电声与管弦乐2017
+- 看见 2015 Live
+- 被禁忌的游戏
 
 链接: https://onedrive.live.com/?authkey=%21ALDItzddrS-dcqc&id=AA960D442CCB0C64%21115189&cid=AA960D442CCB0C64
 - MV
