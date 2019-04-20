@@ -50,4 +50,4 @@
 ## 334的一些纪录片地址
 - https://m.weibo.cn/status/4242848318702096
 
-![](./图片/lizhi.png)
+![](./lizhi.png)
