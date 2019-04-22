@@ -19,7 +19,7 @@
 - 李志1701
 
 ## 百度网盘资源链接
-链接:https://pan.baidu.com/s/1wt5t4Y5HsX2YGhGshAUWgg 密码:qm6e
+链接:https://pan.baidu.com/s/1D1L6eekzGkjhBLrJHMJwUQ 密码:xng0
 ### 无损：
 - 1.2016 unplugged
 - 2.勾三搭四
