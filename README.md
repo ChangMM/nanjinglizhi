@@ -18,6 +18,22 @@
 - 看见 2015 live
 - 李志1701
 
+链接: https://drive.google.com/drive/folders/12i6u7v8zBrbPX70027dZ5b77SefPG6ka
+- 1701
+- 动静
+- 工体东路没有人
+- 勾三搭四
+- 爵士与不插电新编12首
+- 看见2015 Live
+- 李志-电声与管弦乐
+- 李志-电声与管弦乐II
+- 李志北京不插电现场
+- 我爱南京
+- 这个世界会好吗
+- i-O(2014 Live)
+- MP3版 爵士乐与不插电新编12首
+- MP3版李志-电声与管弦乐II
+
 ## 百度网盘资源链接
 链接:https://pan.baidu.com/s/1D1L6eekzGkjhBLrJHMJwUQ 密码:xng0
 ### 无损：
@@ -48,6 +64,55 @@
 
 ## Onedrive 资源链接
 链接：https://1drv.ms/f/s!Ak5XTBnhGoz1gbFXgj62eTeDB2Mg0w
+- 这个世界会好吗
+- 8
+- 108个关键词
+- 1701独立发行
+- F独立发行
+- HSA MAN A FUTURE
+- i O 2014Live
+- Imagine 2012 Live
+- 二零零九年十月十六日事件
+- 你好郑州
+- 动静2015 Live
+- 勾三搭四 2
+- 在每一条伤心的应天大街上
+- 工体东路没有人 2009 Live
+- 我爱南京(独立发行)
+- 李志北京不插电现场2016 Live
+- 梵高先生
+- 爵士乐与不插电新编12首
+- 电声与管弦乐2017
+- 看见 2015 Live
+- 被禁忌的游戏
+
+链接: https://onedrive.live.com/?authkey=%21ALDItzddrS-dcqc&id=AA960D442CCB0C64%21115189&cid=AA960D442CCB0C64
+- MV
+- i O(2014 Live)
+- 勾三搭四(2013 Live)
+- 洗心革面.live.224k
+- 勾三搭四.live.320k
+- 看见北京.live.192k
+- 看见西安.live.192k
+- 看见重庆.live.320k
+- 动静2015 Live
+- 相信未来.live.flac
+- 李志北京不插电现场
+- F
+- 在每一条伤心的应天大街上
+- 李志 电声与管弦乐
+- 看见
+- 工体东路没有人
+- 108个关键词(2012
+- 8
+- 其他单曲
+- 1701
+- 被禁忌的游戏
+- 梵高先生
+- 这个世界会好吗
+- 我爱南京
+- 你好郑州
+- 二零零九年十月十六日
 
 ## 334的一些纪录片地址
 - https://m.weibo.cn/status/4242848318702096
