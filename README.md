@@ -7,7 +7,7 @@
 - 李志、电声与管弦乐 II 2017-2018跨年现场
 - 爵士乐与不插电新编 2017-2018跨年现场
 
-## Google Driver 资源链接
+## Google Drive 资源链接
 链接：https://drive.google.com/drive/folders/12dlZFZtWoJ2ROYjo5J0Y44W_3BxkYNY1
 - imagine 2011 live
 - 108 个关键词 2012 live
